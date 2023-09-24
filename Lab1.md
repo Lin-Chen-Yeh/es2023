@@ -15,11 +15,7 @@
 
 
 
-
-https://github.com/Lin-Chen-Yeh/es2023/assets/145889686/b195671d-f9e6-4019-a7b8-1b46b6e7fd80
-
-
-
+https://github.com/Lin-Chen-Yeh/es2023/assets/145889686/7da9a6ea-e506-4ac6-8b2b-a75dba53f1e1
 
 
 
